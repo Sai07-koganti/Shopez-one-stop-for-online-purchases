@@ -1,0 +1,1 @@
+# Shopez-one-stop-for-online-purchases
